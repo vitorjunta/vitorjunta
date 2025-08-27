@@ -1,4 +1,4 @@
-## 👋 Hi, I'm Vitor Junta 🦇
+## 👋 Hi, I'm Vitor Junta 🦗
 
 🔬 I'm a researcher in **subterranean biology**, with 8+ years of experience studying **cave invertebrate communities**.  
 🌍 My main interests are **understanding species distribution**, **biodiversity conservation**, and **subterranean biology**.  
